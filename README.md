@@ -116,7 +116,7 @@ Through this project, I learned:
 **Ankit Raj**
 
 - GitHub: https://github.com/ankitraj611226-alt
-- LinkedIn: *(Add your LinkedIn profile link here)*
+- LinkedIn: www.linkedin.com/in/ankit-raj-a1850926b
 
 ---
 
